@@ -1,16 +1,18 @@
 ### Hi there 👋
 
-<!--
-**einself/einself** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+likes
 
-Here are some ideas to get you started:
+solitude
+gaming (dota & cs in specific)
+wwf
+animated tv shows (south park, spongebob, drawn together, american dad, family guy)
+open discussions
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+dislikes
+
+loneliness
+injustice
+the inside of raw tomatooes
+
+I'm basically interested in any topic given the right circumstances.
